@@ -25,7 +25,7 @@ Anything that brings the tech community together and drives positive change. �
 
 📫 How to reach me...
 Email me at: [ankityaduwanshi851@gmail.com] 📧
-//Connect with me on LinkedIn: [LinkedIn Profile URL] 🔗(updating soon)
+//Connect with me on LinkedIn: https://www.linkedin.com/in/ankit-yadav-80220a352/ 
 Drop a message on Twitter: [@yaduwanshi_anki] 🐦
 😄 Pronouns: He/Him
 ⚡ Fun fact:
