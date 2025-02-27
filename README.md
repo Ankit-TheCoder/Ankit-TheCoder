@@ -14,7 +14,6 @@ Diving into Frontend Technologies like HTML, CSS, and JavaScript to bring ideas 
 Exploring AI and Data Science to create smarter solutions.
 
 
-
 💞️ I’m looking to collaborate on...
 Open-source projects related to tech education and web development.
 Cool coding challenges that push the boundaries of what we can build together!
